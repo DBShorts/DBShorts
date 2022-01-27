@@ -1,7 +1,11 @@
 - 👋 Hi, I’m @DBShorts
 - 👀 I’m interested in nintendo consoles and homebrew
 - 🌱 I’m currently learning lua
-- 📫 How to reach me discord (@Damian Shorts#9912)
+- 📫 How to reach me discord (@Damian Shorts#1932)
+
+> 1 + 1 = the amount of brain cells i have
+
+me, probably
 
 <!---
 DBShorts/DBShorts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

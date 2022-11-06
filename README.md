@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DBShorts
-- 👀 I’m interested in nintendo consoles and homebrew
-- 🌱 I’m currently learning lua
-- 📫 How to reach me discord (@Damian Shorts#1932)
+- 👀 I’m interested in minecraft, scratch, and more
+- 🌱 I’m currently learning lua, javascript, and html
+- 📫 How to reach me: discord (@Damian Shorts#5398)
 
 > 1 + 1 = the amount of brain cells i have
 

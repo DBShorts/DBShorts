@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @DBShorts
-- 👀 I’m interested in minecraft, scratch, and more
-- 🌱 I’m currently learning lua, javascript, and html
+- 👋 Hi, I’m @DBShorts (Damian Is Rather Silly )
+- 👀 I’m interested in minecraft, scratch, c, wii u hacking and more
+- 🌱 I’m currently learning c
 - 📫 How to reach me: dont :3
 
 > 1 + 1 = the amount of brain cells i have

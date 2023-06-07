@@ -8,6 +8,7 @@
 me, probably
 
 ~~more info about me is available at https://dbshorts.github.io/DBShorts/~~
+
 THE ABOVE SITE IS ***OUTDATED***!!!! I HAVE A NEW ONE NOW!!!!! https://www.damian-is-silly.xyz!!!! I EVEN BOUGHT A FUCKING DOMAIN NAME FOR THIS!!!!
 
 <!---

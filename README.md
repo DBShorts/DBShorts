@@ -9,7 +9,7 @@ me, probably
 
 ~~more info about me is available at https://dbshorts.github.io/DBShorts/~~
 
-THE ABOVE SITE IS ***OUTDATED***!!!! I HAVE A NEW ONE NOW!!!!! https://www.damian-is-silly.xyz!!!! I EVEN BOUGHT A FUCKING DOMAIN NAME FOR THIS!!!!
+THE ABOVE SITE IS ***OUTDATED***!!!! I HAVE A NEW ONE NOW!!!!! https://www.damian-is-silly.xyz!!!! I EVEN BOUGHT A FUCKING DOMAIN NAME FOR THIS!!!! also yes i'm using google sites, i want my site to look good on all devices and i'm lazy ok 😭
 
 <!---
 DBShorts/DBShorts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
